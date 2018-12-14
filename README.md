@@ -1,3 +1,3 @@
 # Recipes
 A repository of recipes
-**Hello World! **
+**Hello World!**

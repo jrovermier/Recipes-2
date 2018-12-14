@@ -14,6 +14,7 @@
 * 2 cups low-sodium chicken broth, plus more for thinning as needed
 * Kosher salt
 * Freshly ground black pepper
+* cinnamon
 
 **For the soup:**
 * 1 (15-ounce) can yellow corn, drained

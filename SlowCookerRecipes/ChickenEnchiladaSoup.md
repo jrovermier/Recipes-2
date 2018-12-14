@@ -29,3 +29,5 @@ Heat a few tablespoons of oil in a large Dutch oven or skillet over medium heat 
 Add the corn, beans, and chicken, and stir to combine. Cover and cook until the chicken is cooked through, 6 to 7 hours on the LOW setting or 4 hours on the HIGH setting.
 
 Shred the chicken into bite-sized pieces with 2 forks. Stir in a splash of heavy cream if desired. Taste and season with salt, pepper, and cayenne pepper as desired. Serve with cheddar cheese, sour cream, tortilla chips, and cilantro for garnish if desired.
+
+*[From The Kitchn](https://www.thekitchn.com/recipe-slow-cooker-chicken-enchilada-soup-193675)*
